@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with professional dex sniper bot | fee-optimization + price-impact-analysis, the #1 dex sniper bot. Includes fee-optimization and price-impact-analysis for a
 
 
 
